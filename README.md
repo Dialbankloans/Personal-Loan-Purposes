@@ -1,7 +1,7 @@
 # Personal-Loan-Purposes
 Education loan is paid directly to the university or college lender never received that money in their account loan is just approved by the bank and disbursed to the merchants account directly. Although this is not the case with the personal loan here the borrower receives the money in their bank account and can be used for anything.
 <br>
-<br> <b><ul><li> House remodeling- </b> <br>
+<br><b><ul><li>House remodeling- </b> <br>
 House remodeling costs are very under-rated if you have ever done any repairing or renovation work you know what I am talking about. You decide a budget for the remodeling and the costs often end up being more than what you expected them to be. Even little modifications can cost a lot as labor and material costs add up. A <a href="https://www.dialabank.com/personal-loan/hdfc-personal-loan/">HDFC personal loan</a> can be a great way for house remodeling as there are a lot of people whom you need to pay the bills for different purposes such as labor, material, furniture which need to be paid to different merchants.
 <br>
 <br> <b><li> Weddings- </b> <br>
